@@ -1,4 +1,4 @@
-# 💫 Hi 👋, I'm Imran Alam
+# 💫 Hi 👋, I'm SOMAIYYA KHATOON
 *A passionate DATA ANALYTICS || AI/ML ENGINNER || DATA SCIENCE
 
 Email Me 👉 ✉️ *khansomaiyya786@gmail.com* For Collaboration/Project or Anything Else. 😊😊
